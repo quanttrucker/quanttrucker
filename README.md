@@ -1,2 +1,2 @@
-👋 Hi, I’m @quanttrucker interested in all things AdTech, FinTech and Quantitative Finance
+👋 Hi, I’m @quanttrucker, I am a quantitative futures trader
 
